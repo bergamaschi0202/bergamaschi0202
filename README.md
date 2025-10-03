@@ -1,1 +1,1 @@
-👋 Hi, I’m @bergamaschi0202
+👋 Olá, eu sou Arthur Bergamaschi
